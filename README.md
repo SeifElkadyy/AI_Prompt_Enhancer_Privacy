@@ -65,4 +65,4 @@ We may update our Privacy Policy from time to time. We will notify you of any ch
 ## Contact Us
 
 If you have any questions about this Privacy Policy, please contact us at:
-[your-email@example.com]
+seif2529888@gmail.com
